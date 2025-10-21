@@ -1,1 +1,1 @@
-[# minorlimshiaa](https://limshiaa.github.io/minorlimshiaa/)
+https://limshiaa.github.io/minorlimshiaa/
